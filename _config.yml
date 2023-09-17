@@ -44,7 +44,7 @@ plugins:
 paginate: 3
 paginate_path: "/page/:num/"
 
-theme: hitchens-theme
+#theme: hitchens-theme
 #ignore_theme_config: true
 
 timezone: Europe/Madrid
