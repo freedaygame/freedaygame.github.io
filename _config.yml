@@ -17,7 +17,7 @@ title: Libre
 email: freedaygame@outlook.com
 description: >- # this means to ignore newlines until "baseurl:"
   Memorias y pajas mentales de un adicto a El Juego
-baseurl: "/blog" # the subpath of your site, e.g. /blog
+#baseurl: "/blog" # the subpath of your site, e.g. /blog
 url: "https://freedaygame.github.io" # the base hostname & protocol for your site, e.g. http://example.com
 icon: /assets/images/icon-512.png
 twitter_username: free_daygame
