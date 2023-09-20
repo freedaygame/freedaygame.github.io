@@ -7,7 +7,7 @@ Estas páginas contienen anécdotas, memorias y análisis de mis ligues y por ta
 
 Todos los nombres que aparecen en este portal son pseudónimos que utilizo para mantener el anonimato de las personas de las que hablo.
 
-Si has llegado a este blog y me conoces, enhorabuena, has descubierto mi lado más degenerado. Ahora conoces mi afición más oculta, mi obsesión, ahora sabes que abordo a cientos de desconocidas en la calle, con el fin de meterlas en mi cama, por puro deporte. Espero que lo disfrutes y no des mucho por culo.
+Si has llegado a este blog y me conoces, enhorabuena, has descubierto mi afición más oculta. Ahora sabes que abordo a cientos de desconocidas en la calle, con el fin de meterlas en mi cama, por puro deporte. Espero que lo disfrutes y no des mucho por culo.
 
 - x: [@free_daygame](https://twitter.com/free_daygame)
 - e-mail: [freedaygame@outlook.com](freedaygame@outlook.com)
