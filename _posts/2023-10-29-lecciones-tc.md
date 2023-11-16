@@ -8,7 +8,7 @@ Mi terrible experiencia en Países Bajos no sólo sirvió para hacerme miserable
 
 <figure align="center">
   <img src="../../../docs/assets/2023-10-29-lecciones-tc/london2.jpeg">
-  <figcaption>En este bar conocí una inglesa que me preguntó "si me olvidaría de ella después de que me la chupara"</figcaption>
+  <figcaption>En este bar conocí una inglesa que me preguntó: "will you forget about me after I suck your dick?"</figcaption>
 </figure>
 
 Antes de mudarme a Países Bajos, estas circunstancias favorables me trajeron algunos éxitos, que se habían dado con suficiente frecuencia como para mantenerme moderadamente satisfecho. Nunca tuve la necesidad de crecer y mejorar para tener resultados, hasta que llegué a este país donde las circunstancias no eran tan favorables para mi.
@@ -36,7 +36,7 @@ Llegué a Londres dos días después de [mi aventura en Málaga](https://freeday
 
 <figure align="center">
   <img src="../../../docs/assets/2023-10-29-lecciones-tc/london1.jpeg">
-  <figcaption>Estuve en este bar durante una cita con una inglesa busca-tesoros de 18 años</figcaption>
+  <figcaption>En este bar tomé una copa con una inglesa busca-tesoros de 18 años durante una cita</figcaption>
 </figure>
 
 Fue muy duro implementar in situ todo lo que Tom me iba enseñando, me costó mucho concentrarme en lo aprendido y al mismo tiempo fluir con la chica. Estoy muy acostumbrado a hacer las cosas "a mi manera" y tengo algunas malas costumbres muy interiorizadas. Pero gracias a ello ahora veo con claridad mis puntos débiles y puedo trabajar en ellos. Recuerdo estar pensando en parar suave como Tom me había explicado, hacer más o menos bien la parada pero después seguidamente enrollarme mucho con el abridor, o ponerme a hablar de mi sin dejar que ella invirtiera. Me trabara constantemente, intentando procesar toda esta información. Meses después aún estoy digiriendo estas enseñanzas, pero voy mejorando poco a poco. A veces antes de salir a hacer una sesión leo las notas que Tom hizo de nuestras sesiones, recordando los consejos que me dió para después ponerlos en práctica.
